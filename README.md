@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Serisha
+- 👋 Hi, I’m @Mani
 - 👀 I’m interested in Frontend development
 - 🌱 Currently exploring UI world. I wish we can make it together if u can join me as well.🙃
 - 📫 How to reach me : www.linkedin.com/in/mani-serisha-kothapalli
